@@ -11,7 +11,8 @@ Plus, objectively, I can say he is so damn cute, we don't need any wild-eyed bab
 
 So, my plans went from password protected website (not that user friendly), to an iPhone app (not that friendly to you Android users, as well as my brother unit, who is not a slave to "fashion" and the world's last remaining BlackBerry user).  Finally, ending with this website, which is a weird compromise where I feel like I am lying to myself.  So bookmark, save, write down the web address for all things Eli &amp; acquaintances.
 
-With that out of the way, on with the show!  Eli is doing great, almost 7 lbs great.  Which his extra-proud grandmother immediately started rounding to 8 lbs.  
+With that out of the way, on with the show!  Eli is doing great, almost 7 lbs great.  Which his extra-proud grandmother immediately started rounding to 8 lbs. 
+
 All this weight gain has earned Eli a very popular second version of his nickname.  While technically still "Mouse", Eli sometimes goes by what sounds like "moose", you see it is just "mouse" pronouced with a French accent, which to the untrained American ear, sounds like "moose".  Voila.
 
 This is what an empty Moose looks like when explaining how low his tank is:
