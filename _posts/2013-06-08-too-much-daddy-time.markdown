@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  'Too Much Daddy Time Makes Your Hair Fall Off'
+title:  'Too Much Daddy Time Makes Your Hair Fall Out'
 date:   2013-06-08 09:42:02
 categories: hairlines
 ---
