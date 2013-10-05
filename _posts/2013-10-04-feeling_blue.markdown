@@ -12,7 +12,7 @@ So, around midnight we heard one stuffed up little moose snorting around. The re
 ![](/images/PA040146.jpg "Walkin.")
 \[Daddy, lets pretend to be wet glazed doughnut monsters today.\]
 
-We then put on our baggy 6 month old jeans and sweet Durham shirt to impress Aunt Corinna who was coming to visit (the keen among you may remember her as the aunt who tried to tickle a 4 hour old Eli in the ICU). The Durham shirt lasted almost an hour, successfully making it through a big poppy diaper, but failing to beat the bottle with vitamins.
+We then put on our baggy 6 month old jeans and sweet Durham shirt to impress Aunt Corinna who was coming to visit (the keen among you may remember her as the aunt who tried to tickle a 4 hour old Eli in the ICU). The Durham shirt lasted almost an hour, successfully making it through a big poopy diaper, but failing to beat the bottle with vitamins.
 
 ![](/images/PA040148.jpg "Walkin.")
 \[Daddy, are you trying to make me wear white after Labor Day?\]
