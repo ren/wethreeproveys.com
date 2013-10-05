@@ -7,7 +7,7 @@ categories: sick
 
 So Moose likes to go to preschool twice a week, for about 45 minutes total. The biggest benefits are; 1. Dad has the illusion of free time, and 2. Eli makes sure to get updated with the disease of the week.
 
-So, around midnight we heard one stuffed up little moose sorting around. The rest of the night, some number of us divisible by 2 or 3 to a whole number, were wide awake. Finally, with everyone back to sleep, Moose woke up and between pouty sad snuffles, flashed a few huge super tired smiles to let me know not to worry, we'd still be able to play today.
+So, around midnight we heard one stuffed up little moose snorting around. The rest of the night, some number of us divisible by 2 or 3 to a whole number, were wide awake. Finally, with everyone back to sleep, Moose woke up and between pouty sad snuffles, flashed a few huge super tired smiles to let me know not to worry, we'd still be able to play today.
 
 ![](/images/PA040146.jpg "Walkin.")
 \[Daddy, lets pretend to be wet glazed doughnut monsters today.\]
